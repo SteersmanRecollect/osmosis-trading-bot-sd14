@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with ultimate osmosis trading bot Plugin | DEX-arbitrage + yield-farming, the #1 osmosis trading bot. Includes DEX-arbitrage and yield-farming for a smoother
 
 
 
